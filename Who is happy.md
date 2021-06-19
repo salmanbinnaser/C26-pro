@@ -1,0 +1,4 @@
+Once a crow looked at a swan & thought how beautiful the swan is.She had all white feathers whereas the crow was black.The crow expressed his thoughts to the swan.The swan replied that according to her,the parrot is the most beatiful bird as it has two colours & the swan had just one.Next,the crow apporoached the parrot,who simply said that peackock is the most beautiful than him,as it is multicoloured.When the crow expressed his thoughts to the peacock,the peacock replied,"My dear crow,you are the luckiest bird on this planet as you are never caged"."because of my beauty,i am trapped in this cage & you are free".On hearing this,the crow thought how foolish he had been & thanked God for making him the way he was.
+
+Moral:
+Never compare yourself to others.Be happy in what you are & what you have.
